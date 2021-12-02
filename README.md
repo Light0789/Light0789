@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Light0789
+- 👀 I’m interested in learning coding/programming
+- 🌱 I’m currently a absolute beginner
+- 💞️ I’m looking to learn coding faster,better ASAP 
+- 📫 How to reach me "just text me here"
